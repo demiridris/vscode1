@@ -1,1 +1,0 @@
-deneme yapmak için kullanıldı.
